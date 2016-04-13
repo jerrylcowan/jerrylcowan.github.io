@@ -3,7 +3,7 @@ published: true
 title: Best Mother's Day Gifts Ideas 2016 for Pakistan
 layout: post
 tags: [Mother's, day, Mother's, day, Gifts]
-categories: [Gifts, Shopping]
+categories: [sending-gifts]
 ---
 In this World there are lots of events celebrated in every month. Some events celebrated in specific countries for specific community but some events celebrated all over the world for all communities. One of the events Mother's Day celebrated in all over the world, in all countries. 
 
@@ -29,4 +29,4 @@ Every women loves food, they are making food every day for their families. On th
 
 <h1>Beauty Lover Mom:</h1>
 
-Every women likes fashion, new trends, color dying, etc. Whether they are working or not they wants to look good smart, slim and beautiful. On this coming Mother's Day we have a best option for giving Beauty voucher or send her parlor. 
+Every women likes fashion, new trends, color dying, etc. Whether they are working or not they wants to look good smart, slim and beautiful. On this coming Mother's Day we have a best option for giving Beauty voucher or send her parlor.
