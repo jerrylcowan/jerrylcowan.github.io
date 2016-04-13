@@ -16,7 +16,7 @@ Following are the ideas of gifts for Mother’s Day;
 
 Flowers and bouquet are the evergreen gifts for every event. There are lots of florist local and online shops in all the regions. Mom will be very happy when she will get Fresh Flowers.
 
-<img src="http://sentimentsexpress.com/flowers/bunch-of-lilies.html" alt="Bunch Of Lillies"> 
+<img src="http://sentimentsexpress.com/media/catalog/product/cache/1/image/400x500/9df78eab33525d08d6e5fb8d27136e95/w/f/wfol-lilly-b.jpg" alt="Bunch Of Lillies"> 
 
 <h1>Cakes:</h1>
 
